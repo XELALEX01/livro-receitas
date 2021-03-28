@@ -1,0 +1,15 @@
+# Strogonofe de frango:chicken: 
+
+### INGREDIENTES
+
+- FRANGO
+- ARROZ
+- BATATA PALHA
+- CREME DE LEITE
+- SAL A GOSTO
+
+### MODO DE PREPARO
+
+- COLOCA NA PANELA
+- COLOCA NO FOGO
+- E VAI KK
